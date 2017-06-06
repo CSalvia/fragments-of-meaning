@@ -1,2 +1,2 @@
 # fragments-of-meaning
-Aquarius out for challenges and andventures that filles her heart and soul. What is your fragment of meaning? 
+When I open a new Illy coffee pack, I smell home. Whats your fragments of meaning? The smaller the better.
